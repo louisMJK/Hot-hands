@@ -1,2 +1,4 @@
 # Hot-hands
-anyu yyds
+runrun yyds
+
+[http://thehothand.blogspot.com/]
